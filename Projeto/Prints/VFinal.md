@@ -1,6 +1,6 @@
 ## 100000 Versão 1 e Versão final
 
-![Screenshot](https://i.ibb.co/M9MFkLY/Sem-t-tulo.png)
+![Screenshot](https://imgur.com/a/7jJlX9B)
 
 ## Speedup
 
